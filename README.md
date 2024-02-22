@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sakthivelk97
+- 👋 Hi, I’m Sakthivel
 - 👀 I’m interested in explore and learning
 - 🌱 I’m currently learning 
 - 😄 Pronouns: sakthi
